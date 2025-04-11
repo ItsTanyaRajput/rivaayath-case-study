@@ -103,4 +103,4 @@ Launch Rivaayath, a modern ethnic fashion brand, in the U.S. market with a focus
 
 This campaign demonstrates my full-funnel approach to digital marketing, creative strategy, and brand storytelling that drives performance and scalable growth.
 
-> Want to connect or collaborate? Feel free to reach out on [LinkedIn](https://linkedin.com/in/yourprofile)!
+> Want to connect or collaborate? Feel free to reach out on [LinkedIn](https://www.linkedin.com/in/tanya-singhrajput/)!
