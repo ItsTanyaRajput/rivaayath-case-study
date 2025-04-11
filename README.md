@@ -1,4 +1,4 @@
-# rivaayath-case-study
+# Rivaayath-case-study
 # Rivaayath USA Launch Campaign
 
 This case study outlines the paid social and influencer marketing strategy for launching Rivaayath, a women’s fashion brand, in the U.S. market.
